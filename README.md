@@ -1,6 +1,7 @@
-  ━━━━━━━━━━━━━━ ◦ 🌸 ◦ ━━━━━━━━━━━━━━
-<img width="640" height="450" alt="image" src="https://github.com/user-attachments/assets/5ff24a30-17f7-4879-89c8-46a67c3eec14" />
-  ✨ ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ─── ✨
+ #  ━━━━━━━━━━━━━━ ◦ 🌸 ◦ ━━━━━━━━━━━━━━
+ 
+<img width="500" height="281" alt="image" src="https://github.com/user-attachments/assets/595a1a75-47f8-46d3-8010-b55301792bdf" />
 
-<img width="420" height="236" alt="image" src="https://github.com/user-attachments/assets/b2c534e1-786f-497f-88ae-0661791f5878" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/48d6c554-44f6-422e-aeeb-c0482805632c" />
+
 
